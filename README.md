@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RazedDragon873
+- 👀 I’m interested in art
+- 🌱 I’m currently learning tailwhip and top backflip
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me is idrk
